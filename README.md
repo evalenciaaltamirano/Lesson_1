@@ -1,1 +1,1 @@
-# Lesson_1
+# Lesson_1 What I learn with lesson 1 is the basic understanding in how to use Dreamweaver and how the tools that are there to help you. Another thing it also show was how to customize your own tools and layout on how you want your tools when doing daily task. 
